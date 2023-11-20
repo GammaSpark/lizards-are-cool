@@ -1,2 +1,2 @@
 # lizards-are-cool
-WHOA, DUE TO AN INSANE EXPERIMENTAL DIMENSIONAL SHENANIGAN, THERE IS A DIFFERENT LIZARD HERE NOW
+Well it ate the bug too, the same bug, the exact same bug, how does this even happen, this is terrifying... Unprecedented times we live in...
