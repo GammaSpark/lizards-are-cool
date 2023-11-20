@@ -1,2 +1,1 @@
-# lizards-are-cool
-Well this means they must resolve somehow, right? Mayhaps remerging the timelines will fix this. 
+The timelines have merged, which means there should be two, happy, well-fed lizards
