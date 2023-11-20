@@ -1,2 +1,2 @@
 # lizards-are-cool
-Well it ate the bug too, the same bug, the exact same bug, how does this even happen, this is terrifying... Unprecedented times we live in...
+Well this means they must resolve somehow, right? Mayhaps remerging the timelines will fix this. 
